@@ -1,5 +1,5 @@
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-<h1 align="center"> 𝐊𝐄𝐈𝐓𝐇-𝐌𝐃 </h1>
+<h1 align="center"> TRAVIS-𝐌𝐃 </h1>
 
  
 <h1 align="center"> Survival is winning frankline everything else is bullshit,fairy tales spun by people afraid to look life in the eye,do whatever it takes kid ,,survive 😏🙏
@@ -80,7 +80,7 @@
    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 
 
-Enjoy the diverse features of 𝐊𝐄𝐈𝐓𝐇-𝐌𝐃  to enhance your Whatsapp more enjoyable
+Enjoy the diverse features of TRAVIS-𝐌𝐃  to enhance your Whatsapp more enjoyable
 
 
 ### Credits to:
